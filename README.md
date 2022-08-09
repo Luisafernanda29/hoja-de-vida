@@ -1,4 +1,3 @@
-# hoja-de-vida
 # Luisa Fernanda Cortezano Movilla  
 <a href="https://ibb.co/vvbqbXH"><img src="https://i.ibb.co/vvbqbXH/Whats-App-Image-2022-08-08-at-4-20-22-PM.jpg" alt="Whats-App-Image-2022-08-08-at-4-20-22-PM" border="0"></a>
 
